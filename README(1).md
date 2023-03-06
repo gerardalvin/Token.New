@@ -1,7 +1,7 @@
 
-Ytb my Chanel rikianggara 
+Ytb my rikianggara 
 Link ytb:https://youtube.com/@rikianggarakusuma3757
-Wa 085794487713
+Wa:085794487713
 
 Boleh di recode tapi si usahakan izin dulu
 
